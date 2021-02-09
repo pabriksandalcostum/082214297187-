@@ -1,0 +1,2 @@
+# 082214297187-
+Untuk mengamati portofolio produk yang pernah kami buat Anda dapat mengunjungi Galeri Sandal. Anda bisa mengunjungi workshop kami secara segera terdapat sebagian sample yang tersedia.Dapat Mengamati Model Bahan Yang Menjadi Referensi Untuk Memilih Bahan Yang Akan Gunakan pada Alas Sandal Yang Anda Pesan. Info pengorderan lebih lanjut hubungi Kami Insya Allah Kami Pasti respon. 082214297187 https://pabriksandaljepitcustom790519553.wordpress.com/2021/02/05/082214297187-pabrik-sandal-jepit-jawa-timur/
